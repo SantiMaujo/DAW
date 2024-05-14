@@ -1,7 +1,1 @@
-Clase 1 
-Abril 2024
-
-Desarrollo Arquitecturas Web
-Santiago Maujo
-
-Version Actualizada 2.0
+https://www.espn.com.ar/futbol/argentina/nota/_/id/13001833/rosario-central-platense-final-de-la-copa-de-la-liga-comentario
